@@ -7,7 +7,7 @@
 </p>
 
 <p align="left">
-  Atualmente estudando através de bolsa B2B na <strong>CubosAcademy</strong> em parceria com o <strong>iFood</strong>, aos quais sou muito grato.
+  
 </p>
 
 <h3>Algumas Skills</h3>
